@@ -4,7 +4,7 @@
 
 Olá, sou **GoldenChalk9757**. Desenvolvedor com experiência em **Python**, **Java**, **HTML** e crio e desenvolvo **Inteligências Artificiais**. Meus pronomes são **ele/dele**. Gosto de programar coisas bem malucas e ate mesmo sem nexo, ou por pura curiosidade ou por diversão...
 
-[![Click Me](https://img.shields.io/badge/Botão%20Secreto-Click%20Aqui!-blue?style=for-the-badge)](https://www.surprise-link.com)
+[![GoldenChalk9757 Little secret ](https://img.shields.io/badge/Botão%20Secreto-Click%20Aqui!-blue?style=for-the-badge)](https://youareanidiot.cc/)
 
 ## Tecnologias e Especialidades
 
